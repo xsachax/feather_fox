@@ -1,1 +1,1 @@
-ALl game art for feather fox
+All game art for feather fox
