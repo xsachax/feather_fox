@@ -1,1 +1,1 @@
-All game art for feather fox
+All game art entirely made from scratch for feather fox game.
